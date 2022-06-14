@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🔭 I’m currently working on earth
+- 🌱 I’m currently learning How to live on Mars
+- 👯 I’m looking to collaborate on building threebody organization
+- 🤔 I’m looking for help with saving the earth
+- 💬 Ask me about how escape from solar system
+- 📫 How to reach me: on github
+- 😄 Pronouns: rescue faction
+- ⚡ Fun fact: All above is a joke
